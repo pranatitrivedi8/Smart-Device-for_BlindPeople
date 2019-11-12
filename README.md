@@ -1,0 +1,1 @@
+# Smart-Device-for_BlindPeople
